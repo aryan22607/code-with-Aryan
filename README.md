@@ -1,1 +1,1 @@
-# Aryan
+# Diet plan
